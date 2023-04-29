@@ -1,1 +1,1 @@
-I WILL POST COOL THINGS SOON ... 👀
+I will post coll things soon ... 👀
